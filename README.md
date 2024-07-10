@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Science And Analytics Enthusiast<br>Looking for a Job to enhance my valuability towards an Organization<br>Recently done Master's in Computer Application<br>Let's explore the infinite possibilities in the Digital Sphere
+Data Science And Analytics Enthusiast<br>Looking for a Job to enhance my valuability towards an Organization<br>Recently done Master's in Computer Application<br>Let's explore the infinite possibilities in the Digital Sphere.
 
 
 ## 🌐 Socials:
